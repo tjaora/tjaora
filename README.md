@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences : [Tasnimul Jannat Niha](https://drive.google.com/file/d/1m5Bq49yxxBSookoeNgT1iF0yzqWVvEik/view?usp=sharing)
 
-- ⚡ Fun fact **I love to play relaxing games**
+- ⚡ Fun fact:  **I love to play relaxing games**
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
