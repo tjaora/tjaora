@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Frontend mentor course for deep knowledge**
 
-- 📫 How to reach me **tasnimuljannatniha@gmail.com** [gmail]
+- 📫 How to reach me  [gmail] (tasnimuljannatniha@gmail.com)
 
 - 📄 Know about my experiences : [Tasnimul Jannat Niha](https://drive.google.com/file/d/1m5Bq49yxxBSookoeNgT1iF0yzqWVvEik/view?usp=sharing)
 
