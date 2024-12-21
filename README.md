@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **tasnimuljannatniha@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1wohEyoZy4gFMCEF5qMqHLY6qngXEbW6e/view?usp=drivesdk](https://drive.google.com/file/d/1FNvLKHy7esGmkuVYtB6wKNr2w9ngLrIe/view?usp=drive_link)
+- 📄 Know about my experiences ([https://drive.google.com/file/d/1FNvLKHy7esGmkuVYtB6wKNr2w9ngLrIe/view?usp=drive_link](https://drive.google.com/file/d/1m5Bq49yxxBSookoeNgT1iF0yzqWVvEik/view?usp=sharing)
 
 - ⚡ Fun fact **I love to play relaxing games**
 
