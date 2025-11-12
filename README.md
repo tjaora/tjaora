@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Tasnimul Jannat Niha</h1>
 <h3 align="center">A passionate frontend developer</h3>
 
-- 🌱 I’m currently learning **Frontend development and Project Management** in work.
+- 🌱 I’m currently learning **Frontend development , HR work and Project Management** in work.
 
 - 📫 How to reach me : -   **gmail : tasnimuljannatniha@gmail.com**
 
